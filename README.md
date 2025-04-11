@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-eU sou KENNE ROGER sou um progamador Front End, Atulmente estou aprendendo e Criando projeto com:
+|Eu sou KENNE ROGER sou um progamador Front End, Atulmente estou aprendendo e Criando projeto com:
 <br>
 <br>
 
